@@ -1,2 +1,0 @@
-# Tailoring
-Online Tailoring Courses
